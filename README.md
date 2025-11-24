@@ -7,6 +7,6 @@
 - 💬 Buscando mais evolução em áreas técnologicas
 
 - 📫 Contato: 
-E-mail: xtexzak@gmail.com
-IG: galdino_.s
+ E-mail: xtexzak@gmail.com
+ IG: galdino_.s
 -->
