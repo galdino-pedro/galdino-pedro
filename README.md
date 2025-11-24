@@ -3,7 +3,7 @@
 - 🇧🇷 Moro em Brasília
 - 🔍 Tenho 19 anos
 - 📚 Atualmente estou no 1° semestre de Análise e Desenvolvimento de Sistemas na UDF 
-- 🔧 Atualmente trabalhando com Mecânica 
+- 🔧 Atualmente trabalhando com Mecânica Automotiva
 - 💬 Buscando mais evolução em áreas técnologicas
 
 - 📫 Contato: 
